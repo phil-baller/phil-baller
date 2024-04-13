@@ -1,5 +1,5 @@
 ### Hi there 👋
 
-- 🔭 I’m currently doing alot of coding
+- 🔭 I’m currently working alot on private projects
 - 🌱 I’m currently thinking alot about life
 - ⚡ Fun fact: The ways of the wind
